@@ -1,2 +1,4 @@
-# QT.onwednesday.github.io
-LANÇAMENTO (PLATAFORMA NOVA): LEBRE-SE DE JOGAR COM RESPOSABILIDADE! PROIBIDO PARA MENORES DE🔞.
+# LANÇAMENTOS DE SABÁDO!
+As melhores plataformas validadas com saques rápidos:
+
+Lembre-se de jogar com responsabilidade!
